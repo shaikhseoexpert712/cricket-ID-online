@@ -2,7 +2,7 @@
 Join MadrasBook, which offers secure and instant Online Cricket ID. Cricket betting is safe and easy with MadrasBook
 Cricket ID Online Registration Free – Claim Your ID Without Paying a Rupee
 
-Cricket fans in India can now get a free Cricket ID without spending a single rupee! Whether you want to play fantasy cricket, bet on matches (where legal), or stream live games, many platforms offer completely free registration.
+Cricket fans in India can now get a free Cricket ID without spending a single rupee! Whether you want to play fantasy cricket, bet on matches (where legal), or stream live games, many platforms offer completely free registration.  https://madrasbook.com
 
 This guide covers:
 ✔ How to get a free Cricket ID
@@ -121,4 +121,5 @@ Frequently Asked Questions (FAQs)
 🔹 No, each platform requires a separate account.
 
 Final Verdict: Should You Get a Free Cricket ID?
-If you want to play fantasy cricket, watch live matches, or explore betting (legally), a free Cricket ID is a great way to start—without spending money.
+If you want to play fantasy cricket, watch live matches, or explore betting (legally), a free Cricket ID is a great way to start—without spending money.  https://madrasbook.com
+
